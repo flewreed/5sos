@@ -1,1 +1,1 @@
-# 5sos
+https://flewreed.github.io/5sos/
